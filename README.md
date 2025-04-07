@@ -1,0 +1,1 @@
+# apeduedutrip2-kelas8E
